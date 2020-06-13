@@ -1,1 +1,3 @@
 # magalhaes-projects
+Hi people! :)
+
